@@ -82,6 +82,7 @@ Customers with the highest spend:
 
 **Arkaprabha Sarkar**  
 [LinkedIn Profile](https://www.linkedin.com/in/arkaprabha-sarkar-5b6302287?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+📧 Email: s.arkaprabha@iitg.ac.in 
 
 ---
 
